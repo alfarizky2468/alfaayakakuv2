@@ -1,1 +1,0 @@
-# alfaayakakuv2
